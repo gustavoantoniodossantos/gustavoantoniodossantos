@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @gustavoantoniodossantos
-- 👀 I’m interested in new technologies and sciece/tenho interesse em novas tecnologias e ciencia
+- 👀 I’m interested in new technologies and sciece/tenho interesse em novas tecnologias e ciencia e viados
 - 🌱 I’m currently learning vaja script and node js/estou estudando java escript e node js
-- 💞️ I’m looking to collaborate on react/node opensource projects/estou me relacionando vom reac/node js e projetos de codigo/opensource
+- 💞️ I’m looking to collaborate on react/node opensource projects/estou me relacionando vom reac/node js e projetos de codigo/opensource e para homens
 - 📫 How to reach me in gmail/agp68759482@gmail.com
-- 😄 Pronouns: he/him or ele/dele
-- ⚡ Fun fact: i´m from the rural area/sou da zona rural
+- 😄 Pronouns: he/him or ele/dele e mujito gay
+- ⚡ Fun fact: i´m from the rural area/sou da zona rural e sou gay dms
 
 <!---
 gustavoantoniodossantos/gustavoantoniodossantos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
