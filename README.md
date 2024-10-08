@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on react/node opensource projects/estou me relacionando vom reac/node js e projetos de codigo/opensource e para homens
 - 📫 How to reach me in gmail/agp68759482@gmail.com
 - 😄 Pronouns: he/him or ele/dele e mujito gay
-- ⚡ Fun fact: i´m from the rural area/sou da zona rural e sou gay dms
+- ⚡ Fun fact: i´m from the rural area/sou da zona rural 
 
 <!---
 gustavoantoniodossantos/gustavoantoniodossantos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
